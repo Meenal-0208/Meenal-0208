@@ -4,8 +4,7 @@
 # 💫 About Me:
 🔭 
 <br>📫 How to reach me **meenalkothari02@gmail.com**    
-<br>📄 Know about my experiences [https://www.linkedin.com/in/ansh-somani-98527428a](https://www.linkedin.com/in/ansh-somani-98527428a)    
-
+<br>📄 Know about my experiences [https://www.linkedin.com/in/meenal-kothari-b06530249/](https://www.linkedin.com/in/meenal-kothari-b06530249/)    
 ## 🌐 Socials:
 
 <div> 
